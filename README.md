@@ -1,2 +1,0 @@
-# pinaldhaduk
-hey
